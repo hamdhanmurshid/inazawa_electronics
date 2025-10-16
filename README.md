@@ -1,0 +1,1 @@
+# inazawa_electronics
